@@ -1,0 +1,6 @@
+#HERE IS A LIST OF MY FAVORITE THINGS TO DO
+* CODE
+* READ
+* NEWSPAPERS
+* WORKOUT
+* WATCH A GOOD MOVIE (Little things, with Denzel ended terrible!)
